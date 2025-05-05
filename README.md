@@ -1,0 +1,1 @@
+# global-azure-2025-pune-net-aspire
